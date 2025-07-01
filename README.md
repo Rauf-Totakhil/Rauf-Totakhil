@@ -23,7 +23,7 @@
 📫 **Reach Me At**: `rauftotakhil@gmail.com`
 
 🧾 **View My Work**:
-- [LinkedIn](https://www.linkedin.com/in/rauf-totakhil)
+- [LinkedIn](https://www.linkedin.com/in/abdulrawof-totakhil)
 - [Coursera Certificates](#) *(link to your certificates)*
 
 ---
